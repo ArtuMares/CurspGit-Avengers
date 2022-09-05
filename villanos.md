@@ -2,4 +2,4 @@
 
 * Dr doom
 * Red Sull
-* Doctor Mares
+* Capitan américaS
